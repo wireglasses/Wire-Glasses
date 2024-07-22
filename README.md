@@ -1,1 +1,55 @@
-# Wire-Glasses
+⁺₊ ✦ ꒰ა໒꒱ ✦ ₊⁺
+
+⸝⸝ ✦ 📌  ; prns:: he/them ﹒﹒︴ He/him pref 💫
+
+‘’’🖇·˚ ✎ ; Eddie / Reeve / Shaggy
+
+ᶻz﹒ ⸝⸝ ₊˚ ; Aroace / Male ♂ / 15 / ISFP
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+જ⁀➴ - Activity indicator
+🟢 ---► online! C + H
+🌙 ---► fully afk C + H
+⛔️ ---►  Semi afk C+ H
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+📌。. ;; i sit at the genshin, splatoon and astv area (mostly at the splatoon area)
+
+📌。. ;; C + H always okay ^ im mostly afk or alone so interact when im online
+
+📌。. ;; DNI if your under 7 - 12 or over 20 im a teenager so dont feel comfortable talking to kids and full grown adults
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+DNI;
+
+Proshippers
+
+Groomers
+
+Racists
+
+Hazbin/Helluva
+
+Homophobics
+
+DSMP
+
+⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼⎻⎺⎺⎻⎼⎽⎽⎼
+
+⁺₊ ✦ ꒰ა INTERSTS ໒꒱ ✦ ₊⁺
+
+⸝⸝ ✦ 📌 Splatoon
+⸝⸝ ✦ 📌 Pokemon
+⸝⸝ ✦ 📌 Sky COTL
+⸝⸝ ✦ 📌 Coroika
+⸝⸝ ✦ 📌 The Hollow (netflix)
+⸝⸝ ✦ 📌 Spider Man
+⸝⸝ ✦ 📌 ATLA
+⸝⸝ ✦ 📌 Avatar
+⸝⸝ ✦ 📌 TMNT
+⸝⸝ ✦ 📌 Warrior cats
+⸝⸝ ✦ 📌 Wings of Fire
+⸝⸝ ✦ 📌 Godzilla 
